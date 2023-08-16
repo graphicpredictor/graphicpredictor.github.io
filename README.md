@@ -1,1 +1,10 @@
-# graphicpredictor.github.io
+# Graphic Predictor
+
+> [!NOTE]
+> When we reach 5k members on our discord server which is linked below we will giveaway 10 lifetime plans.
+
+# Prices
+**5$ Monthly**, **10$ Lifetime**
+
+# Socials 
+[Our discord](https://discord.gg/M4MvzGf8Gp)
