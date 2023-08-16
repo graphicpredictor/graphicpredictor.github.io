@@ -9,5 +9,5 @@
 - 400 Robux Monthly
 - 800 Robux Lifetime
 
-# Socials 
+**Socials**
 > [Our discord](https://discord.gg/M4MvzGf8Gp)
